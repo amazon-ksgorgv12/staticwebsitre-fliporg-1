@@ -11,7 +11,7 @@ It is illegal to use this template without credit attribution.
 If you wish to remove the credit attribution footer link, please 
 contact us to purchase a credit removal license for $89.95. 
  
-For more information visit:
+For more informatdaion visit:
 http://www.bluewebtemplates.com/
 
 For premium website templates:
